@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Koikralle2k24
 - 👀 I’m interested in Photography 
 - 🌱 I’m currently learning Computer Science
-- 💞️ I’m 20 years old
+- 💞️ I’m 21 years old
 - 📫 How to reach me: e-mail
 - ⚡ Fun fact: Drone Pilot
 
